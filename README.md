@@ -4,4 +4,3 @@
 - estou estudando na alura.
 - utilizo espaço para me organizar e compartilhar meus projetos.
 
-Para voce entrar em contato comigo 📪
